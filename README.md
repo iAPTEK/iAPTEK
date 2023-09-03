@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iAPTEK babe
-- 👀 I’m interested in blockchain
+- 👀 I’m interested in blockchain & cryptocurrency
 - 🌱 I’m currently learning finance
 - 💞️ I’m looking to collaborate on twitter
 - 📫 How to reach me at @iAptek all in social
