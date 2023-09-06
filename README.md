@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iAPTEK babe
+- 👋 Hi, I’m @iAPTEK baby
 - 👀 I’m interested in blockchain & cryptocurrency
 - 🌱 I’m currently learning finance and humain comprehnsion
 - 💞️ I’m looking to collaborate on twitter & instagram
