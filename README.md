@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iAPTEK baby mama.
+- 👋 Hi, I’m @iAPTEK baby mama luv.
 - 👀 I’m interested in blockchain & cryptocurrency bu the way.
 - 🌱 I’m currently learning finance and humain comprehnsion .
 - 💞️ I’m looking to collaborate on twitter & instagram & mym.
