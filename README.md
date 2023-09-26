@@ -5,6 +5,7 @@
 - 📫 How to reach me at @iAptek and all in social.
 - all ayes on me
 - GODSEEEEU MA THA FUCK
+- okay
 
 <!----
 iAPTEK/iAPTEK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
