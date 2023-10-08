@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning finance and humain comprehnsion.
 - 💞️ I’m looking to collaborate on twitter & instagram & mym.
 - 📫 How to reach me at @iAptek and all in social.
-- all ayes on me.
+- all ayes on me.jkn
 - GODSEEEEU MA THA FUCK
 - okay babe.
 
