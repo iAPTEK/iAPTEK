@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iAPTEK baby mama luva....
-- dqsdqsdqs huihiu...
+- dqsdqsdqs huihiu...hu
 - huihiu
 - 👀 I’m interested in blockchain & cryptocurrency by the way.
 - 🌱 I’m currently learning finance and humain comprehnsion.
